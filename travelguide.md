@@ -49,3 +49,11 @@ If feel like skiing while visiting Stockholm during winter time there is a small
 ski slope close to the city centre of Stockholm. 
 
 https://www.skistar.com/sv/vara-skidorter/hammarbybacken/vinter-i-hammarbybacken/
+
+# Sweden
+
+### Stockholm
+
+### Glaze
+
+Awesome luncgh restaurant close to Red Hat office
